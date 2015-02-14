@@ -1,0 +1,2 @@
+# Skripsiku
+Ganbatte
